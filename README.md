@@ -1,2 +1,2 @@
-# Ye-ooSu
+# YeşooSu
 Gerek Yokk bence 😜
