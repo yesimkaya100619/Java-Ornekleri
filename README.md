@@ -1,2 +1,1 @@
-# YeşooSu
-Gerek Yokk bence 😜
+
